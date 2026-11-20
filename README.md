@@ -1,2 +1,2 @@
-# 3FatherVibe
+# 3FatherVibe - HUSC
 Tài nguyên
